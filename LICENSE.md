@@ -1,4 +1,4 @@
-# 
+# exclusive Descript for macOS Filter | green-screen-removal + auto-color-grading offers the most advanced Descript for macOS filter, with green-screen-removal and
 
 
 
